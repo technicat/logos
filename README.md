@@ -1,4 +1,4 @@
-Logos that I have commissioned for my [games](http://fuguqames.com/) brand and [corporate](http://technicat.com/) identity,
+Logos commissioned for my [games](http://fuguqames.com/) brand and [corporate](http://technicat.com/) identity,
 including some work-in-progress mockups presented during the concept phase.
 
 Created by [Shane Nakamura](https://shanenakamura.smugmug.com/Art) and [Dakota Snow](https://www.instagram.com/espress_yo_self/).
