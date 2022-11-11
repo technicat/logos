@@ -1,6 +1,6 @@
 Logo by Dakota Snow
 
-![fugu games](/images/logos/dakotasnow/TechnicatLogo.jpg)
+![fugu games](/images/logos/technicat/dakotasnow/TechnicatLogo.jpg)
 
 Work-in-progress designs by [Shane Nakamura](https://www.shanenakamuradesigns.com/)
 
